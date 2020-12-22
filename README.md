@@ -1,0 +1,1 @@
+# hackintosh_dell_inspiron14_3442_i5-4210U
